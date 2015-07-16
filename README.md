@@ -1,2 +1,2 @@
 # jihyek.im
-I love data 
+baby steps
